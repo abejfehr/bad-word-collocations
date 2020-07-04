@@ -5,3 +5,5 @@
 - Pepper and Salt
 - Dad and Mom
 - White and Black
+- Giggles and Shits
+- Potatoes and Meat
